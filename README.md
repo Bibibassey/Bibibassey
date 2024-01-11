@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Bibibassey
 - 👀 I’m a certified web content writer and copywriter
 - 🌱 I’m currently learning: a bit of coding for tweaking the theme on my blogspot blog
-- 💞️ I’m looking to collaborate on: technical writing for software blog or website
+- 💞️ I’m looking to collaborate on: technical writing for a software blog or website
 - 📫 How to reach me: blessingbassey8@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love to sit outside my balcony with the warm sun on my face scribbling words on my writing pad
