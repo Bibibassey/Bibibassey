@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Bibibassey
-- 👀 I’m a certified web content writer and copywriter
+- 👀 I’m a certified web content writer and copywriter. I create website content that will get shared, get leads, and attract traffic 
 - 🌱 I’m currently learning: a bit of coding for tweaking the theme on my blogspot blog
 - 💞️ I’m looking to collaborate on: technical writing for a software blog or website
 - 📫 How to reach me: blessingbassey8@gmail.com
